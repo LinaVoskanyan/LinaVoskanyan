@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LinaVoskanyan 💕
 - 👀 I’m interested in chimical experiments ✨
-- 🌱 I’m currently learning working in <<Github>> 😎
+- 🌱 I’m currently learning working in << Github >> 😎
 - 💞️ Not looking for a partnership yet 🤔
 - 📫 How to reach me:❓❓❓
 - 😄 Pronouns: ❓❓❓
